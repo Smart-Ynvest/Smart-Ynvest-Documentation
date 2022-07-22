@@ -1,0 +1,1 @@
+# Smart-Ynvest-Documentation
